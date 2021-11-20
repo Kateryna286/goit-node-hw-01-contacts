@@ -6,7 +6,7 @@ https://monosnap.com/file/EvEgsgC3qfq6yjrdpA0FV15mHiRZuW
 
 https://monosnap.com/file/v9JGqX8PGm1k2AIPOeSz6JKWmFZipR
 
-# Добавялем контакт
+# Добавляем контакт
 
 https://monosnap.com/file/BViiqP7bd1bXypAJugOWdmYHwq0G0X
 
